@@ -1,2 +1,2 @@
-# work-is-worship
+# work-is-work
 Work
